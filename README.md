@@ -5,5 +5,3 @@
 链接：https://pan.baidu.com/s/1sFM_9Wf1UGgIxxfnDPLXIw?pwd=kxpp
 提取码：kxpp
 
-详细操作流程
-https://xwean.com/1976.html
